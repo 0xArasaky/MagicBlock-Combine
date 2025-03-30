@@ -1,1 +1,1 @@
-https://teletype.in/@arasaky0x/MagicblockCombine
+https://teletype.in/@arasaky0x/MagicBlockCombine
